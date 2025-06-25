@@ -1,4 +1,4 @@
-[Artificial Intelligence Sample_v2.pdf](https://github.com/user-attachments/files/20908693/Artificial.Intelligence.Sample_v2.pdf)[Artificial Intelligence Sample_v2.pdf](https://github.com/user-attachments/files/20908693/Artificial.Intelligence.Sample_v2.pdf)# powerbidashboards
+
 Hello! I am a Lead Data Analyst with 9+ years of experience in data analytics. Proven expertise in Power BI, SQL, and advanced data modeling to drive data-driven decision-making across domains such as omnichannel retail and HR analytics. Adept at mentoring teams, streamlining processes, and delivering impactful insights that align with organizational goals.
 
 
